@@ -1,2 +1,2 @@
-# Godf-frey--oruko-graphics
+# Godf-rey--oruko-graphics
 graphic designer
